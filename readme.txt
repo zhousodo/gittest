@@ -1,8 +1,2 @@
-dsfaadfadf
-adsfafd
-afasdfa
-fas
-fdas
-fas
-'g ajopg a
+老师 你好
 
